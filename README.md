@@ -1,2 +1,2 @@
-projek-skck by ndresptra,\n
+projek-skck by ndresptra,
 ig ndresputra
